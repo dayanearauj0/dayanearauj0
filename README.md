@@ -1,4 +1,4 @@
-### Olá , sou Dayane 👋
+### Hey there! 👋
 
 <div align = "center">
   
